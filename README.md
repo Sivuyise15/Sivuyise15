@@ -1,4 +1,4 @@
 ## Hi there
-Cloud Computing | Data Science | Software/Data Engineering | Business Analysis | Artificial Inteligence & ML | Actually, tech at large - Im exploring it all, if has has real world/Business positive impact. More cool projects are private.
+Cloud Computing | Software Engeneering | Artificial Inteligence & ML. Lets work together on something cool.
 ![Visitors](https://visitor-badge.laobi.icu/badge?page_id=Sivuyise15.Sivuyise15)
 
